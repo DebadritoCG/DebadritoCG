@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial intelligence
 - 🌱 I’m currently learning Data Structures and Algos 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me: Through discord, my username is debadritoduttaedits
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am not a retard
 
