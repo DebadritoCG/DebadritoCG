@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Debadrito Dutta
 - 👀 I’m interested in Artificial intelligence
 - 🌱 I’m currently learning Data Structures and Algos 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Discord(debadritoduttaedits)
 - 📫 How to reach me: Through discord, my username is debadritoduttaedits
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am not a retard
