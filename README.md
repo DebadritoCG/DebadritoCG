@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Debadrito Dutta
 - 👀 I’m interested in Artificial intelligence
-- 🌱 I’m currently learning Data Processing(Numpy, Pandas) 
+- 🌱 I’m currently Nothing :) 
 - 💞️ I’m looking to collaborate on Discord(bashingpaglu)
 - 📫 How to reach me: Through discord, my username is bashingpaglu
 - 😄 Pronouns: He/Him
